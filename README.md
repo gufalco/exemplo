@@ -5,3 +5,4 @@ Pei,
 realmente, eu estou perdido
 calma, depois tento te explicar, seu otário. Dorme ai
 tudo bem, eu ainda não posso dormir seu boçal, seria desrespeitoso com o João
+vc ja dormiu seu inseto
